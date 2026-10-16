@@ -1,2 +1,1 @@
-# wb-mod-list
-A board of mods for easy access to goonslop :sparkles:
+> [!WARNING] DONT FUCKING VIEW THIS IF YOU ARE A MINOR
