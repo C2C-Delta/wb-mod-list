@@ -1,6 +1,6 @@
+# ⚠️ **NSFW / 18+ ONLY**
 # Wife's Bedroom — Mod List
 
-⚠️ **NSFW / 18+ ONLY**
 > This list contains adult mods for the game **Wife's Bedroom**.
 > You must be 18 or older to use these links. All mods belong to their original creators — this repo is just an index. Support the authors on their source pages.
 
